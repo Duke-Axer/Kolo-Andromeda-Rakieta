@@ -1,2 +1,2 @@
-# Kolo-Andromeda-Rakieta Nieaktualne
-Studenckie Koło Naukowe Technologii Kosmicznych ,,Andromeda"; Projekt Rakieta
+# Kolo-Andromeda-Rakieta NIEAKTUALNE
+(NIEAKTUALNE) Studenckie Koło Naukowe Technologii Kosmicznych ,,Andromeda"; Projekt Rakieta
